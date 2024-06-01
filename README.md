@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **lakshyaachoudhary123@gmail.com**
 
-- ⚡ Fun fact **I still dont have my insta account..😂**
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
